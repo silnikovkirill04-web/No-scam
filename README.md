@@ -1,0 +1,2 @@
+# No-scam
+No scam
